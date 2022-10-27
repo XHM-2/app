@@ -19,8 +19,8 @@
 ### [vvn3.club](http://www.vvn3.club)
 ### [daa6.club](http://www.daa6.club)
 
-# 小狐狸回家页简介
-专人不断更新，提供最新小狐狸下载地址
+# 小红帽回家页简介
+专人不断更新，提供最新小红帽下载地址
 
 请收藏保存本网址：github.com/XHM-2
 
