@@ -10,14 +10,14 @@
 备用观众版下载地址如下
 
 ### [xhm45.app](https://xhm45.app)
-### [xhm46.xyz](https://xhm46.app)
-### [xhm47.xyz](https://xhm47.app)
-### [xhm48.xyz](https://xhm48.app)
+### [xhm46.app](https://xhm46.app)
+### [xhm47.app](https://xhm47.app)
+### [xhm48.app](https://xhm48.app)
 
 
 ## 备用主播版下载地址如下
-### [vvn3.club](https://vvn3.club)
-### [daa6.club](https://daa6.club)
+### [9dal.club](https://9dal.club)
+### [j34n.club](https://j34n.club)
 
 # 小红帽回家页简介
 专人不断更新，提供最新小红帽下载地址
