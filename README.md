@@ -2,22 +2,22 @@
 ## 点击以下链接进入下载页：
 
 主播版下载地址 
-### [gnm8.club](http://www.gnm8.club)
-### [qwk6.club](http://www.qwk6.club)
+### [1qqa.club](https://1qqa.club)
+### [4avf.club](https://4avf.club)
 
 （观众下载无法使用）
 
 备用观众版下载地址如下
 
-### [xhm45.app](http://www.xhm45.app)
-### [xhm46.xyz](http://www.xhm46.xyz)
-### [xhm47.xyz](http://www.xhm47.xyz)
-### [xhm48.xyz](http://www.xhm48.xyz)
+### [xhm45.app](https://xhm45.app)
+### [xhm46.xyz](https://xhm46.app)
+### [xhm47.xyz](https://xhm47.app)
+### [xhm48.xyz](https://xhm48.app)
 
 
 ## 备用主播版下载地址如下
-### [vvn3.club](http://www.vvn3.club)
-### [daa6.club](http://www.daa6.club)
+### [vvn3.club](https://vvn3.club)
+### [daa6.club](https://daa6.club)
 
 # 小红帽回家页简介
 专人不断更新，提供最新小红帽下载地址
